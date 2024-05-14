@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+Hallo Nama Saya Ragil
 
-Maybe say a some things about yourself.
+saya dari jawa tengah.
 
 Or maybe what you plan to blog about.
